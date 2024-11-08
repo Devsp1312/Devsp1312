@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Devsp1312
-- 👀 I’m interested in Programing and Gameing
+- 👀 I’m interested in Programing
 - 🌱 I’m currently learning Python and Java
 - 💞️ I’m looking to collaborate on Any small projets so i can learn new thing.
 - 📫 How to reach me Discord. (Psycrypta#8003)
